@@ -1,1 +1,1 @@
-I read the diection. This is my second-repo
+I read the direction. This is my second-repo
